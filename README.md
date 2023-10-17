@@ -6,6 +6,8 @@
 
 - *La peste*. Albert Camus. Serre Poncon. Did not like it.
 
+- *Le syndrome E*. Franck Thilliez. Canarya.
+
 
 ## Before
 

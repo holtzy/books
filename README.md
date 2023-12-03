@@ -1,5 +1,9 @@
 ## 2023
 
+- *Les Echelles du Levant*. Amin Maalouf* A la maison. Cried twice.
+
+- *La mort est mont métier*. Savournon. Automne
+
 - *Pour rien au monde*. Ken Follette. Ré - Espagne - Home
 
 - *Petit Pays*. Gaël Faye. Vacance dans les Pyrénéées avec Cherelle.
